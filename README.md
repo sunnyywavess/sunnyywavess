@@ -1,0 +1,5 @@
+- My name is Glitch
+- I like musicals
+- I'm learning how to be a therapist
+- I'm not one for collaboration
+- Discord - ๑ ˖˙「johuggedme」୨୧#0110
